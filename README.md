@@ -1,6 +1,13 @@
-# Perusak WA
+# S̷C̷ ̷P̷E̷R̷U̷S̷A̷K̷ ̷W̷A̷
 
-# JANGAN LAH JADI BOCAH TOLOL 
 
-# INGET DEK!!
 
+
+
+
+
+
+
+
+
+# SAYA TIDAK BERTANGGUNG JAWAB ATAS PERBUATAN ANDA !
