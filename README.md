@@ -1,1 +1,6 @@
-# Virtex-Wa
+# Perusak WA
+
+# JANGAN LAH JADI BOCAH TOLOL 
+
+# INGET DEK!!
+
